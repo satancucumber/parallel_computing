@@ -1,0 +1,1 @@
+[Отчет по лабораторной работе №2](https://docs.google.com/document/d/1hqzE65hWwXuaFEXFo9tTNBVLlatPXiCD22cBYRO9xNA/edit?usp=sharing)
